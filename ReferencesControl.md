@@ -11,5 +11,6 @@
 - Carl Nielsen biografi · Carl Nielsen Society | https://www.carlnielsen.dk/gb/bio/，2025年7月18日閲覧
 - ニールセン 交響曲第4番の楽曲解説　千葉フィルハーモニー管弦楽団 | https://www.chibaphil.jp/archive/program-document/nielsen-symphony4-commentary，2025年7月22日閲覧
 - ニールセン：交響曲第4 番「不滅」- 新交響楽団 | https://shinkyo.org/notes/p238-3.html，2025年7月22日閲覧
+- Symfoni nr. 4, opus 29 – CNW 28 – Catalogue of Carl Nielsen's Works | https://www.kb.dk/dcm/cnw/document.xq?doc=cnw0028.xml，2025年8月2日閲覧
 
 
